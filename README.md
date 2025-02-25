@@ -1,2 +1,2 @@
 "# Admin_template" 
-(https://github.com/user-attachments/assets/a04d6909-5b23-4301-b194-da00888f99c8)
+![Screenshot (2)](https://github.com/user-attachments/assets/6a2da0a5-e0f4-4d1d-8ace-8a53591a3eaa)
